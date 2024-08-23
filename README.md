@@ -1,10 +1,11 @@
-## nam, curso vei podi 😑
+## nam, escola veia podi 😑
 
 meu nome é... meia noite te conto🌚
 
-- estou estudando na alura (contraminha vontade ☠️) [ALURA](https://www.alura.com.br)
+- estou estudando na alura! [ALURA](https://www.alura.com.br)
 
-- estou me desenvolvendo kdjkhjbdhvbdvjhvb db vdbv djbfhbv xj vdvh ( preguiça😑)
+-  to com preguiça e fome 😮‍💨🥺
+
 
 - Não entre em contato cmg 🤠🤙
 
